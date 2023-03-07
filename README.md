@@ -1,1 +1,1 @@
-# rsschool-cv
+[https://phoinixru.github.io/rsschool-cv/cv](https://phoinixru.github.io/rsschool-cv/cv)
